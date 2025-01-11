@@ -5,7 +5,8 @@ I never changed in my life, I've always been the same. I've tried to change and 
 
 ~~The project is to pass GIAC Reverse Engineering Malware Certification, without taking SANS FOR610/710 courses which, well, they are not that affordable for me at the moment. So, I'll try to do it in 2 months, I would like to get the certification in January.~~ 
 
-<img src="https://github.com/B3nM01/B3nM01.github.io/blob/45e90214de0de7fda2a0903d133018e183421095/ucerevino.jpg" width="50%" >
+<img src="https://github.com/B3nM01/B3nM01.github.io/blob/d64cb8c30ba163729aed4ff5ecff204057b3d4a7/ucerevino.jpg" width="50%" >
+
 
 ## EPISODE 01 - 11/01/2025
 
