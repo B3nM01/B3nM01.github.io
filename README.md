@@ -11,8 +11,8 @@ I never changed in my life, I've always been the same. I've tried to change and 
 
 Well, I've gone trough a lot of stuff in this months, they've been the worst of my entire life. It has been interesting to come back here just 3 months after nov 2024, everything has changed so much. Listing:
 
-1. Got dumped by the girl I love (NOV 2024)
-1. Im going to rent the first house of my life, it's near to the job place but it is really pricey.
+1. Heart adventures: Got dumped by the girl I love (Oct 2024).
+1. House searching adventures: Been searching an house to rent in Rome for 1 year, found the right one, contract is being prepared and eventually I will enter the house in FEB 2025. Im going to rent the first house of my life, it's near to the job place but it is really pricey.
 1. Job searching adventures: signed a new contract on 20/12/2025, got offered new activities and new salary by my actual company on 10/01/2025, going to decide where to go on mon 13th 2025.
 
 This months have been a "rough shot", but I am still here working on myself and understing what I want to be. Gonna be a nice year! (finger crossed).
