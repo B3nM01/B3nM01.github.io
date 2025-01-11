@@ -20,5 +20,5 @@ This months have been a "rough shot", but I am still here working on myself and 
 
  <a href="https://www.youtube.com/watch?v=L_Mqvq_bG3M">Music of the period</a> 
  <tr></tr>
- <img src="https://github.com/B3nM01/B3nM01.github.io/blob/9f4a261eb06740eafa24ba54eb056f591bad8754/11-01-25/marghef.jpg" width="50%" >
- <img src="https://github.com/B3nM01/B3nM01.github.io/blob/598217d199ccd91bef22f8381306f094a669cd5a/11-01-25/snowy.jpg" width="50%" >
+ <img src="https://github.com/B3nM01/B3nM01.github.io/blob/main/11-01-25/marghef.jpg" width="50%" >
+ <img src="https://github.com/B3nM01/B3nM01.github.io/blob/main/11-01-25/snowy.jpg" width="50%" >
