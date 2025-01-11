@@ -16,3 +16,6 @@ Well, I've gone trough a lot of stuff in this months, they've been the worst of 
 1. Job searching adventures: signed a new contract on 20/12/2025, got offered new activities and new salary by my actual company on 10/01/2025, going to decide where to go on mon 13th 2025.
 
 This months have been a "rough shot", but I am still here working on myself and understing what I want to be. Gonna be a nice year! (finger crossed).
+
+ <a href="https://www.youtube.com/watch?v=L_Mqvq_bG3M">Music of the periods</a>
+ 
